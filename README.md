@@ -1,3 +1,7 @@
+![icon](https://github.com/user-attachments/assets/3abdbd78-92b3-4738-8aec-c97139c85dc3)
+
+
+
 # The autist maybe skitzo affective groups Creation of "string lazer, salami world" our made up dimension's "Wiki" and "salami stories"
 
 
