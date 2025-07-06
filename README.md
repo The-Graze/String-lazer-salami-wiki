@@ -12,3 +12,9 @@ Featured Art Work credit Cresmondo
 ![image](https://github.com/user-attachments/assets/f516d46a-8c6b-455d-a70e-34e6a06b5cee)
 
 (the slamivers/string laser world was made from Pregnant dark night wanting salami and it took over everything)
+
+
+
+# IMPORTANT TO EDITROS
+DO NOT DELETE "vid.mp4" it is my Video for my gorilla tag mod
+make sure its nothing bad if you do change it but also do not delete it
